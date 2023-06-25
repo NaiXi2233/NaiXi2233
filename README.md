@@ -17,4 +17,4 @@
 ### 聯繫方式
 - [電報](t.me/NaiXi2233)
 - [推特](https://twitter.com/NaiXi2233)
-- [電郵](naixi5644@gmail.com)
+- [電郵]：naixi5644@gmail.com
